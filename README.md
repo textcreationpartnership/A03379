@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THE MUSES THRENODIE, OR, Mirthfull Mournings, on the death of Master Gall.Containing varietie of ple
+
 1. TO HIS NATIVE TOWN OF PERTH: THE LORD PROVEST, BAILLIES, AND COUNSEL THEREOF, HIS WORTHIE PATRONS,
 
 1. TO THE READER.
